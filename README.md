@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Devoux0
-- ✌️Nudzi mi się w życiu 
+- 👀je m'ennuie dans la vie
