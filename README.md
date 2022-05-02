@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Devoux0
+- ✌️Nudzi mi się w życiu 
